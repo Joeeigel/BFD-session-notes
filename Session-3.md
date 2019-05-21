@@ -41,7 +41,7 @@ The **Dock Ward** in search of the nimblewright that may have caused the explosi
 The **City of the Dead**, to find out what is happening with the corpses  
 The party may know somebody who has had interactions with the **Zhents** and could know what they were doing in Trollskull Alley  
 
-**[1]** I retconned the name of the Inn keepers guild guy just so I can keep track of it
-**[2]** The opera was actually sun in Giant, and was describing the fall of the evil dragon queen's defeat at the *Well Of Dragons*
-**[3]** I can't remember if this is how we introduced the concept of the City of the Dead, so this is how it is in canon now
+**[1]** I retconned the name of the Inn keepers guild guy just so I can keep track of it  
+**[2]** The opera was actually sun in Giant, and was describing the fall of the evil dragon queen's defeat at the *Well Of Dragons*  
+**[3]** I can't remember if this is how we introduced the concept of the City of the Dead, so this is how it is in canon now  
 **[4]** The signing from Nim didn't happen at the time of play here.
